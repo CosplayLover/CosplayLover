@@ -1,13 +1,6 @@
-# 💫 About Me:
-Greeting. <br>Feel free to call me anything, from bestie to twin.<br>I go by he/him pronouns.<br>C+h+k unless my user states otherwise. (And if your under or over the preferred age I put)<br>I prefer being mute, honestly, it just feels like im annoying anytime I speak.<br><br>
+# Boundaries:
+C+h+k any, as long as your in the preferred age I put. <br>Mostly mute, honestly man, I just feel like im annoying whenever I speak.<br>Im not a very empathetic person, so keep that in mind when speaking to me.<br>Im uncomfortable with some topics, so if there are any your not sure if im comfortable with or not, make sure to ask me first.<br>Matching with my beloved one ♡
 
-# 📊 GitHub Stats:
-![](https://github-readme-stats.shion.dev/api?username=CosplayLover&theme=dark&hide_border=false&include_all_commits=false&count_private=false)<br/>
-![](https://streak-stats.demolab.com/?user=CosplayLover&theme=dark&hide_border=false)<br/>
-![](https://github-readme-stats.shion.dev/api/top-langs/?username=CosplayLover&theme=dark&hide_border=false&include_all_commits=false&count_private=false&layout=compact)
-
----
-[![](https://komarev.com/ghpvc/?username=CosplayLover&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->## Hi there 👋
 
